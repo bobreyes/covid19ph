@@ -2,7 +2,7 @@
 
 CONSOLIDATED ANSWERS FROM PHL GOVERNMENT OFFICIALS AMID COVID-19
  
-Cabinet Secretary Karlo Nograles
+## Cabinet Secretary Karlo Nograles
 
 - IATF will meet everyday to monitor development of COVID-19.
 
@@ -38,14 +38,13 @@ Cabinet Secretary Karlo Nograles
 
 - Local officials may also quarantine respective LGUs within Metro Manila. Mayors set to meet today.
 
-
-Department of Education Secretary Leonor Briones
+## Department of Education Secretary Leonor Briones
 
 - Mula April 13-17 ang maaring pagpilian ng mga paaralan na araw ng graduation ng kanilang mga mag-aaral
 
 - Ilang paaralan, tuluyan nang kinansela ang graduation ceremony
  
-Through Usec. Alain Pascua:
+### Through Usec. Alain Pascua:
 
 - Schools originally only have 2 weeks of school left. One measure to be taken will be staggered administering of final exams outside Metro Manila. In Metro manila, DepEd possibly looking at online examinations or averaging class standing.
 
@@ -53,37 +52,33 @@ Through Usec. Alain Pascua:
 
 - On graduation rites, schedules will be adjusted and Briones has given an order that outside Metro Manila, ceremonies will be held April 13-17.
  
-
-Department of Agriculture Secretary William Dar
+## Department of Agriculture Secretary William Dar
 
 - All the cargos, goods, agricultural will pass without any interference.
 
 - If there will be problem, we will work this out with the police and military
 
-Through Assistant Secretary Noel Reyes
+### Through Assistant Secretary Noel Reyes
 
 - Pag-uusapan sa pulong mamaya ang tiyak at sapat na supply ng pagkain o produkto.
 
 - Huwag mag-panic. Mayroon po para sa lahat. Maging mahinahon.
 
-
-Metropolitan Manila Development Authority General Manager Jojo Garcia
+## Metropolitan Manila Development Authority General Manager Jojo Garcia
 
 - Ni-lift na po natin ang number coding para magkaroon po ng mobility ang mga tao para magawa na nila ang mga dapat gawin
 
 - Maari pong magpatawag ng pulong ang DILG kasama ang mga Alkalde ng Metro Manila at MMDA
 
-
-Commission on Higher Education Chairperson Dir. Prospero De Vera
+## Commission on Higher Education Chairperson Dir. Prospero De Vera
 
 - Online modules maaring gamitin ng mga university para sa kanilang mga estudyante
 
 - Ipinauubaya na namin sa mga private university sa labas ng Metro Manila kung magdedeklara ng class suspension.
 
 - Nakikiusap kami sa mga ospital, ‘wag pilitin ang mga medical student interns na. mag-duty sa ospital.  Hindi pa naman sila talaga medical professionals.
- 
 
-Philippine National Police Major Gen. Benigno Durana
+## Philippine National Police Major Gen. Benigno Durana
 
 - Sa ngayon, wala kaming data kung ilan ang ilalagay na checkpoint pero maganda kung lahat ng entrance at exits at malalagyan.
 
@@ -91,8 +86,7 @@ Philippine National Police Major Gen. Benigno Durana
 
 - Maximum tolerance po ang ipatutupad ng PNP.
 
-
-Department of Trade and Industry Sec. Ramon Lopez
+## Department of Trade and Industry Sec. Ramon Lopez
 
 - Work will continue, as well as, supply of basic necessities.
 
@@ -124,7 +118,7 @@ Department of Trade and Industry Sec. Ramon Lopez
 
 - Pinapayuhan naming ang publiko na iwasan ang pagbili ng gamot online.
  
-Through Usec. Ruth Castelo
+## Through Usec. Ruth Castelo
 
 - Cargoes food and non-food okay to move
 
@@ -134,15 +128,13 @@ Through Usec. Ruth Castelo
 
 - Simula sa Lunes, magkakaroon ng supply sa major retailers sa bansa ng face masks.
 
-
-Department of Finance Sec. Sonny Dominguez
+## Department of Finance Sec. Sonny Dominguez
 
 - Movement of goods not covered by community quarantine of Metro Manila
 
 - We cannot extend the April 15 deadline. We can allow amendment. Without paying of interest subject
  
-
-Department of Interior and Local Government Sec. Eduardo Año
+## Department of Interior and Local Government Sec. Eduardo Año
 
 - Sa midnight po ng March 15 ipatutupad ang community quarantine sa Metro Manila
 
