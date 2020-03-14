@@ -1,5 +1,21 @@
 # CONSOLIDATED ANSWERS FROM PHL GOVERNMENT OFFICIALS AMID COVID-19
 
+## Message from Chief Presidential Legal Counsel & Presidential Spokesperson Salvador S. Panelo (Sat 14 Mar 2020 1730H)
+
+On the role of the spokespersons in communicating measures against COVID-19
+
+For purposes of clarity, the Inter-Agency Task Force for the Management of Emerging Infectious Diseases has agreed that, aside from the President, only the Presidential Spokesperson and the Secretary of Health may announce or discuss the general policies and guidelines pertaining to the issuances and directives of the Philippine Government in addressing the coronavirus disease 2019 (COVID-19) in the country.
+
+They may authorize their respective staff to relay or disseminate pertinent information for this purpose, on a case to case basis.
+
+With regard to the details for the implementation of issuances and directives on COVID-19 related matters, heads and spokespersons of implementing line departments, agencies or instrumentalities may speak about specific concerns only in connection with their mandate.
+
+For the information, guidance and compliance of our friends in media and of the general public.
+
+Salvador S. Panelo<br>
+Chief Presidential Legal Counsel<br>
+& Presidential Spokesperson<br>
+
 ## LTFRB issues Official Statement on Sudden Stop of Operations Without Approval
 
 The Land Transportation Franchising and Regulatory Board (LTFRB) informs the operators or franchise holders that an entity given a Certificate of Public Convenience (CPC) CANNOT announce any sudden stop on operations without the approval of the LTFRB.
