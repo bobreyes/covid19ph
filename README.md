@@ -10,8 +10,8 @@ The Palace shall issue a set of directives and their corresponding guidelines no
 
 The evaluation of these aforesaid measures is being undertaken in order to ensure that the threat of COVID-19 is properly addressed with the least amount of burden upon the lives of our citizens.
 
-Salvador S. Panelo
-Chief Presidential Legal Counsel
+Salvador S. Panelo<br>
+Chief Presidential Legal Counsel<br>
 & Presidential Spokesperson
  
 ## Cabinet Secretary Karlo Nograles
