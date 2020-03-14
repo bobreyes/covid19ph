@@ -1,5 +1,63 @@
 # CONSOLIDATED ANSWERS FROM PHL GOVERNMENT OFFICIALS AMID COVID-19
 
+## Responses/Statements consolidated by DOTr-Comms from the DOTr Press Conference Q & A portion today, 14 March 2020
+
+DOTr Usec. Artemio Tuazon
+
+- ‘Yung no standing policy po ay hindi lang po para sa train kundi para rin po sa mga bus. Dahil po ‘yun sa tinatawag nating social distancing. So, for PUBs and for Trains bawal na po yung tayuan. Number of passengers inside to be controlled. Nabanggit po ni DDG Mendoza yung tungkol po sa Clark. That is one option. Now po, the other option for us is Sangley Airport na operational na po. Ang limitation lang po ng Sangley Airport is Turbo prop. So, Turbo prop flights can be operated out of Sangley.
+
+- Enforcement po ng lahat ng protocols na relative po sa COVID-19 po ay ipatutupad po ng PNP. So we are coordinating with them, they will have several teams around Metro Manila to enforce these protocols. Tapos po, dapat po nating tandaan, itong mga bus pong ito ay may prangkisa sa LTFRB. So regulated po sila ng LTFRB. If they do not cooperate, the LTFRB can give sanctions against them.
+
+- Before po itong press con, nagmeeting na po ang ating Road sector, together with the HPG at tsaka ‘yung mga operators po ng mga roads natin to determine kung saan ilalagay itong mga checkpoints na ito, to make sure that there is ample space to accommodate these people, at isa pa po they have made arrangements na ‘yun pong mga city buses, or city public utilities naman will also be meeting them at these points to ferry them inside the NCR.
+
+- ‘Yung P2P buses po natin from the airport papalabas, ito po ‘yung strictest sense of P2P, pagsakay po nila sa NAIA, wala na pong titigilan ito in any point of Manila or NCR. Ang susunod na po na baba nito either Sangley or Clark.
+
+- Kapag nasa loob po ng NCR, tuloy lang po ang transportation natin, subject only to the social distancing protocols. Ang mababago lang po, ang maapektuhan ay yung provincial natin na papasok sa Manila. Hindi po sila papayagan na pumasok sa NCR at the control point. They have to transfer to a city conveyance.
+
+- Sinabi po ni DILG Sec. Año, if you will note po, ang tatao sa mga checkpoints ay ang PNP, sila po ang in-charge sa enforcement. Kapag po may hindi nakipag-cooperate, una pakikiusapan sila. Kapag hindi po talaga sila nagcooperate, aarestuhin po sila, ‘yun po ang sabi ni Sec. Año.
+
+- Kung sa tanong mo kung gaano kami ka-seryoso, sir, seryoso po kami. Hindi po biro itong COVID-19 na ito. Malaking threat po ito sa buhay ng tao. Kaya ‘yung ginawa po naming protocols, talaga pong paninidigan po naming ipatupad po ito sa lahat. Katulad po ng nasabi kanina, katulong po ang PNP sa enforcement, ang presidente po isinama na sa enforcement ang PNP. Bukod po rito, ang DOTr ay may tinatawag na I-ACT, isasama rin po naming sa pag-eenforce.
+
+- For people na magmumula from Montalban Rizal to Laguna: If they can find alternative routes, better. Pero kung wala po silang madaanan, ipapakita nila ang identification nila, either nakatira sila sa kabila, mag-papass through lang sila sa NCR, just as long as controlled ang travel nila sa NCR, they can pass through.
+
+- Hindi po ito normal or regular na panahon sa atin. Malaki po itong pinagdadaanan natin dail sa COVID-19. At dahil malaki po itong pinagdadaanan natin, kailangan po ng sakripisyo ng lahat  para mapanatili ang health at well-being ng lahat ng Senior Citizens ng NCR. Definitely there will be inconvenience, like I said, these are abnormal times. Hindi po ngayon ang konsiderasyon is ‘yung katulad po ng dati, na ang konsiderasyon po ay ang comfort ng commuters. Ngayon po, ang konsiderasyon is ma-prevent yung spread ng virus. Kaya po ang nililimitahan natin dito is ‘yung movement ng tao. Ang cargo tuloy-tuloy lang po. Commerce will continue, it is only the movement of people that we’re trying to control also to control the spread of virus.
+
+- Private vehicles will also have to pass through checkpoints. For them to enter NCR, dapat ma-justify nila kung ano ang dahilan ng pagpasok ng NCR, kung ang dahilan po nila ay ang trabaho nila nasa loob ng NCR, ipapakita lang po nila ang company ID nila, just to prove that they are working sa loob ng NCR, and they will be allowed. Ganoon din paglabas nila.
+
+- Ang hihingin sa checkpoints: Company IDs, kung walang IDs, certification from the employer basta mapakita kung saan sila nagt-trabaho. Basta maipakita na may trabaho sila sa loob ng NCR.
+
+OTS Usec. Raul Del Rosario
+
+- Hindi lang po sa Pilipinas ito. Globally, ganito po ang nae-encounter natin. Nabalitaan natin, nakita natin kung gaano karami ang namamatay, nawawalan ng trabaho, etc. kaya napakahalaga na tulong-tulong po tayo bilang isang pamayanan. Hindi po pwedeng DOTr lang, PNP lang, IATF lang, ang kabilang dito. Napakahalaga po ng partisipasyon ng publiko. Sabi ng apo ng ating kalihin, kailangannating magsakripisyo para sa ikabubuti ng nakararami.
+
+LTO Asec. Edgar Galvante
+
+- Naka-deploy ang ating enforcers, at katulong dito ang PNP na deputized at kung sa pamantayan naman tungkol sa prangkisa, at restriction sa lisensya, sa rehistro, ipatutupad din natin ito. In fact, whether there is quarantine or not. Kaya kung sila ay makiki-pagsapalaran ng ganoon, mawalang-gala na, maaaring they will suffer further inconvenience sa page-enjoy ng pribilehiyo. Halimbawa katulad nitong lumabas na yung listahan na ang dami-dami pala nilang violation at binabalewala nila, in-evaluate ‘yan ng LTO at in fact nagpatupad na ng pag-suspinde ng lisensya. Kung saan kung nakita na mayroon kang 3 o higit pa within the year ng same violation, suspended ng 3 months ang lisensya. Ngayon kung mayroong more than that ang violation, ieevaluate-in pa ito kung ano pa ang maidadagdag. Ngayon, hindi ito dahil gusting magpahirap kundi sinusunod lang natin ang pamantayan ng ating batas para naman magkaroon tayo ng disiplina sa daan.
+
+- Ito ‘yung kautusan dito, una pakiusap na kayo’y sumunod. Pero kung magi-insist sila na ‘di susunod sa pakiusap eh, aarestuhin po sila. Kung ano yung corresponding sanction under the rules and regulations of traffic, ipapataw sa kanila. Pero kunwari may nature of being a criminal violation, then the corresponding case can be filed against them.
+
+- Bakit importante ‘yung ID at address—kasi kung sa hindi naman hinihingi ng pagkakataon, nagkaroon ng contact with somebody contaminated, kailangan ito sa contact tracing kaya importante rin malaman ang address, hindi ito para alamin kung sino mahaharass o mabubully or whatever. But rather, importante kung sakaling ma-identify na nagkaroon ng isang contact, afflicted with the virus, importante na ma-trace para mabigyang lunas  Kaya importante ‘yung ID.
+
+DOTr Asec. Eymard Eje
+
+- Ang guidelines po na aming inilabas ay pinagtugma-tugma at pinagsama-sama po ang mga konsepto galing sa iba’t ibang sektor sa tagubilin po ni Sec. Arthur Tugade at ito po ay pinag-isipang mabuti hindi para magbigay ng inconvenience sa ating commuters kundi para po sa kaligtasa ng lahat, ito po ay para sa ikabubuti ng mas nakararami upang masugpo po natin ang kumakalat na virus. Sana po maintindihan po ng lahat, sa ngalan po ng Department of Transportation, sana po maintindihan ng lahat ng ang ginagawa natin ay para sa mamamayang Pilipino.
+
+CAAP DDG for Operations Capt. Don Mendoza
+
+- The directive is no domestic flights out of Manila. So that is why we are open to the options of Clark. That is why, as I have said, mayroon po tayong P2P buses that will carry passengers out of Manila and will bring you to Clark. So we are also asking airlines if they can launch extra sections, or extra flights out of Clark. Maluwag po ang Clark, napakalapad po. So definitely, makaka-accommodate pa po sila ng mga extra flights.
+
+- We had an informal meeting with some of the airlines. We are opening the option of arranging it by themselves or in coordination with Manila Airport Authority.
+
+- ‘Yung P2P sa airport, pasahero lamang po ito na galling sa eroplano. Wala na pong ibang kasama. Puro pasahero ng eroplano.
+
+MRT-3 Dir. Michael Capati
+
+- We will implement one-meter social distancing sa tren at sa station platform. At ang reduced capacity po ng tren natin ay mare-reduce siya sa 25% yung dating kinakarga natin na 1,000 plus will be reduced to 250-300 passengers maximum a day. Meaning, Malaki po ang inconvenience nito sa mga pasahero kaya ngayon pa lang ay humihingi na kami ng dispensa dahil bukod sa linya kung saan sila pumipila hanggang sa platform ay i-lilimit po namin ang pagpasok kada pasahero at pati po ang pagsakay sa tren.
+
+- Hindi pa po namin nakikitang magkakaroon ng adjustment considering na marami pong workers pa rin ang sasakay between 8:00-10:00 pm. Exempted po kasi ang mga workers natin sa curfew so we are expecting also riders from that. Tama po, irereview natin ‘yan everyday kung kailangan i-subject sa reduction.
+
+- Expected na-po namin sa MRT-3 na talagang bababa ang servisyo in terms of transporting workers so nagaappeal din kami sa private sector if they can adjust, do flexitime, para ‘di na ma-congest during peak hours sa mga tao. We are appealing also sa private not only sa government.
+
 ## Viber message from DILG ASec. Jonathan Malaya
 
 "Each LGU will decide on mall closures. They will make their own policy but they agreed in principle kanina sa MMDA.
