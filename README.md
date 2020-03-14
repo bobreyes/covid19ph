@@ -1,5 +1,15 @@
 # CONSOLIDATED ANSWERS FROM PHL GOVERNMENT OFFICIALS AMID COVID-19
 
+## LTFRB issues Official Statement on Sudden Stop of Operations Without Approval
+
+The Land Transportation Franchising and Regulatory Board (LTFRB) informs the operators or franchise holders that an entity given a Certificate of Public Convenience (CPC) CANNOT announce any sudden stop on operations without the approval of the LTFRB.
+
+This is tantamount to abandonment of route which is a direct violation of their franchises. Any operator or franchise holders who will participate in such unauthorized practice may have their franchise suspended, revoked, or may face appropriate sanctions based on the agency’s policy issuances.
+
+The LTFRB appeals to the operators / franchise holders to comply with the abovementioned directive on the account of a Nationwide Public Health Emergency and to not add unnecessary panic for our most important stakeholders – the riding public.
+
+[Reference LTFRB message sent via Viber]
+
 ## Metro Manila Imposes Curfew from 8PM to 5AM
 
 BREAKING: MMDA GM Garcia after emergency meeting on the implementation on community quarantine:  All mayors in the metropolis agreed to issue a resolution imposing a curfew in Metro Manila from 8 p.m. to 5 a.m.
