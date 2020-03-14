@@ -46,7 +46,8 @@ As always, the President is hard at work in the service of the Filipino people t
 
 Salvador S. Panelo<br>
 Chief Presidential Legal Counsel<br>
-& Presidential Spokesperson
+& Presidential Spokesperson<br>
+[Reference: https://www.facebook.com/LagingHandaPHL/posts/2252642125032159]
 
 ## Message from Chief Presidential Legal Counsel & Presidential Spokesperson Salvador S. Panelo (Sat 14 Mar 2020 1000H)
 
