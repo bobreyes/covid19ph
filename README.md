@@ -1,5 +1,53 @@
 # CONSOLIDATED ANSWERS FROM PHL GOVERNMENT OFFICIALS AMID COVID-19
 
+## Message posted by Laging Handa PH
+
+On the Stringent Social Distancing Measures to Address COVID-19
+
+After a thorough review of the Office of the President of the directives and guidelines crafted by the Inter-Agency Task Force on Emerging Infectious Diseases (IATF), Executive Secretary Salvador C. Medialdea, by order of President Rodrigo Roa Duterte, issued a Memorandum addressed to heads of departments, agencies, offices and instrumentalities of the government, government-owned or controlled corporations, government financial institutions and state universities and colleges, as well as local government units.
+
+Contained in the Memorandum are emergency but temporary directives and guidelines which are primarily intended to address the spread of the coronavirus disease (COVID-19) in the country.
+
+The stringent social distancing measures imposed in the National Capital Region (NCR), effective March 15, 2020 until April 14, 2020, are set forth as follows:
+
+1. Mass gatherings such as movie screenings, concerts, sporting events and other entertainment activities, community assemblies, and non-essential work-related gatherings shall be prohibited. Essential work-related meetings and religious activities may continue so long as strict social distancing, defined as the strict maintenance of a distance of at least one (1) meter radius between and among those attending, is maintained during the entirety of the event.
+
+2. Local Government Units (LGUs) shall abide by the directives of the Department of Health (DOH) and the Department of the Interior and Local Government (DILG) in the imposition of general community quarantine in their respective jurisdictions.
+
+For this purpose, general community quarantine is defined as a condition where movement of people shall be limited to accessing basic necessities and work; and uniformed personnel and quarantine officers shall be present at border points.
+
+Thus, subject to qualifications that the IATF may further provide, all areas under general community quarantine shall implement the following:
+
+a. Restrict the non-essential entry of people to the contained area, especially persons who are at high risk of being infected (i.e., 60 years old and above, immunocompromised or with co-morbidities and pregnant women), except (1) health workers, (2) authorized government officials, (3) those travelling for medical or humanitarian reasons, (4) persons transiting to airports for travel abroad, (5) persons providing basic services and public utilities, and (6) essential skeletal workforce; and
+
+b. Prevent the non-essential exit of people out of the contained area, except (1) health workers, (2) authorized government officials, (3) those travelling for medical or humanitarian reasons, and (4) those who were granted entry based on the above-mentioned provisions, provided that all persons leaving the contained community must be checked for signs and symptoms (e.g., fever, respiratory symptoms, diarrhea) at exit checkpoints where (1) appropriate certification will be issued by the competent health authority (DOH or Provincial/City/Municipal Health Officer), (2) health authority endorses exiting person to recipient LGU, (3) exiting persons to undertake 14-day home based quarantine, and (4) LGUs are required to monitor implementation of home-based quarantine.
+
+However, if circumstances so warrant, the DOH and the DILG may direct an LGU to impose enhanced community quarantine, which is defined as a condition where strict home quarantine shall be implemented in all households, transportation shall be suspended, provision for food and essential health services shall be regulated, and the presence of uniformed personnel to enforce quarantine procedures shall be heightened.
+
+3. Alternative working arrangements, including but not limited to, work-from home, compressed work week, staggered working hours, and creation of skeletal workforces, shall be implemented in the Executive Branch. All members of the Philippine National Police, the Armed Forces of the Philippines and the Philippine Coast Guard, and health and emergency frontline services are directed to continue full operation. The Legislative and Judicial Branches, as well as the independent constitutional bodies are encouraged to adopt the same policy.
+
+4. With respect to the restriction on land, domestic air and domestic sea travel to and from the NCR, all workers, whether employed or self-employed, will be provisionally allowed to travel. For this purpose, proof of employment and/or business must be presented at border checkpoints.
+
+5. All departing passengers shall be allowed transit through the NCR. For this purpose, proof of confirmed international travel itinerary, scheduled within twelve (12) hours from entry, should be presented at checkpoints. However, outbound travel to countries where travel restrictions are in place remains prohibited.
+
+6. The movement of cargoes shall be unhampered, regardless of origin or destination.
+
+7. Suspension of classes and school activities in all levels in the NCR shall remain in force until April 14, 2020.
+
+Aside from the current travel restrictions imposed upon foreign travel to and from China, including its Special Administrative Regions, and portions of South Korea, inbound travelers from Iran and Italy (except Filipino citizens, including their foreign spouse and children, if any, and holders of Permanent Resident Visas or 9(e) Diplomatic Visas issued by the Philippine Government) shall be required to present a medical certificate issued by competent medical authorities within forty-eight (48) hours immediately preceding departure signifying that they have tested negative for COVID-19.
+
+In addition, the DOH is authorized to grant exemptions, based on humanitarian considerations, in favor of outbound travelers who wish to travel to jurisdictions where restrictions are currently in place.
+
+The Palace reiterates that all measures imposed are subject to the regular review by the President and the IATF in order to ensure that the virus would be contained and ultimately eliminated without extremely overwhelming the citizens in going about their daily lives.
+
+A copy of the Memorandum containing the comprehensive list of directives and their corresponding guidelines will be released by the Palace.
+
+As always, the President is hard at work in the service of the Filipino people to preserve the general welfare and protect public health.
+
+Salvador S. Panelo<br>
+Chief Presidential Legal Counsel<br>
+& Presidential Spokesperson
+
 ## Message from Chief Presidential Legal Counsel & Presidential Spokesperson Salvador S. Panelo (Sat 14 Mar 2020 1000H)
 
 On the 12th IATF Meeting
