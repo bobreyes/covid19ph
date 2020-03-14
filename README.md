@@ -1,5 +1,10 @@
 # CONSOLIDATED ANSWERS FROM PHL GOVERNMENT OFFICIALS AMID COVID-19
 
+## Metro Manila Imposes Curfew from 8PM to 5AM
+
+BREAKING: MMDA GM Garcia after emergency meeting on the implementation on community quarantine:  All mayors in the metropolis agreed to issue a resolution imposing a curfew in Metro Manila from 8 p.m. to 5 a.m.
+[Reference https://twitter.com/manilabulletin/status/1238675060828729345]
+
 ## Message posted by Laging Handa PH
 
 On the Stringent Social Distancing Measures to Address COVID-19
