@@ -1,5 +1,13 @@
 # CONSOLIDATED ANSWERS FROM PHL GOVERNMENT OFFICIALS AMID COVID-19
 
+## Viber message from DILG ASec. Jonathan Malaya
+
+"Each LGU will decide on mall closures. They will make their own policy but they agreed in principle kanina sa MMDA.
+
+Please don't worry about the curfew. Since each LGU will pass their own ordinances (Monday earliest) all that we in DILG/PNP can do in the meantime is to discourage people from moving around and to stay home.
+
+The PNP at the checkpoints can't make arrests of people yet so it's just to discourage people from moving which is the purpose of quarantine."
+
 ## Message from Chief Presidential Legal Counsel & Presidential Spokesperson Salvador S. Panelo (Sat 14 Mar 2020 1730H)
 
 On the concerns of workers, including those in media
