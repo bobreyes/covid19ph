@@ -2,6 +2,22 @@
 
 ## Message from Chief Presidential Legal Counsel & Presidential Spokesperson Salvador S. Panelo (Sat 14 Mar 2020 1730H)
 
+On the concerns of workers, including those in media
+
+Following the issuance of the Office of the President of the Memorandum which contains the directives and guidelines relative to the community quarantine imposed in the National Capitol Region (NCR), the Palace stresses that non-essential entry into and exit from the said region is restricted and prevented, respectively.
+
+As a result, entry into or exit from the NCR by workers, including legitimate media practitioners, are permitted only if their travel is essential, and not simply for leisure or otherwise, such as that the purpose thereof is to report for work or conduct essential business in the place of their destination. They shall, however, present proof of the legitimacy of their work or business at border checkpoints so our enforcement personnel can validate the necessity of their entry to or exit from the NCR.
+
+Of course, those who will circumvent or violate the imposed community quarantine, such as presenting false company identification cards or fabricated business agenda, shall be dealt with strictly in accordance with law.
+
+The point of the directives issued by the Office of the President is to contain the spread of the coronavirus disease, and in the ultimate, totally eliminate the same from our country. Hence, the Palace asks for the honesty and cooperation of our countrymen as it is now the health and safety of our populace which are at stake.
+
+Salvador S. Panelo<br>
+Chief Presidential Legal Counsel<br>
+& Presidential Spokesperson<br>
+
+<hr>
+
 On the role of the spokespersons in communicating measures against COVID-19
 
 For purposes of clarity, the Inter-Agency Task Force for the Management of Emerging Infectious Diseases has agreed that, aside from the President, only the Presidential Spokesperson and the Secretary of Health may announce or discuss the general policies and guidelines pertaining to the issuances and directives of the Philippine Government in addressing the coronavirus disease 2019 (COVID-19) in the country.
