@@ -1,6 +1,18 @@
-# covid19ph
+# CONSOLIDATED ANSWERS FROM PHL GOVERNMENT OFFICIALS AMID COVID-19
 
-CONSOLIDATED ANSWERS FROM PHL GOVERNMENT OFFICIALS AMID COVID-19
+## Message from Chief Presidential Legal Counsel & Presidential Spokesperson Salvador S. Panelo (Sat 14 Mar 2020 1000H)
+
+On the 12th IATF Meeting
+
+Members of the Inter-Agency Task Force on Emerging Infectious Diseases (IATF) met yesterday, March 13, to provide guidelines for the proper implementation of the emergency but temporary directives which are intended to address the spread of the coronavirus disease (COVID-19) in the country.
+
+The Palace shall issue a set of directives and their corresponding guidelines not just for compliance by government instrumentalities but more importantly, for the information of the public.
+
+The evaluation of these aforesaid measures is being undertaken in order to ensure that the threat of COVID-19 is properly addressed with the least amount of burden upon the lives of our citizens.
+
+Salvador S. Panelo
+Chief Presidential Legal Counsel
+& Presidential Spokesperson
  
 ## Cabinet Secretary Karlo Nograles
 
